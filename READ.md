@@ -1,4 +1,4 @@
-On a dark desert highway
+On an avenue
 Cool wind in my hair
 Warm smell of colitas
 Rising up through the air
